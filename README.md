@@ -1,6 +1,6 @@
 # Watch how to make Easy chocolate chip cookies
 
-![Chcolate Chip Cookie](https://www.modernhoney.com/the-best-chocolate-chip-cookies/)
+![Chcolate Chip Cookie](https://www.modernhoney.com/wp-content/uploads/2019/01/The-Best-Chocolate-Chip-Cookies-2.jpg)
 
 ## Ingrediens 
 
